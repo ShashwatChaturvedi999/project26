@@ -1,0 +1,1 @@
+Many historians believe that biryani originated from Persia and was brought to India by the Mughals. Biryani was further developed in the Mughal royal kitchen. the Mughal soldiers looked undernourished. In order to provide a balanced diet to the soldiers, she asked the chefs to prepare dish with meat and rice.16-Jan-2017
